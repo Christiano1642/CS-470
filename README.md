@@ -94,4 +94,4 @@ The combination of **technical expertise** and **strategic cloud planning** gain
 
 ---
 
-**Video Presentation:** [https://youtu.be/795_sdsOUhk](https://youtu.be/795_sdsOUhk)
+
